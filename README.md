@@ -18,7 +18,7 @@ Designed and administered a primary research survey (n=26) examining the effecti
 ---
 
 ## 📄 Full Presentation
-[Download Full Presentation (PDF)](Britnee_No_Group___Pres_2___Traditional_Commercial_pptx__1_.pdf)
+[Download Full Presentation (PDF)](Traditional_Commercials.pdf)
 
 ---
 
